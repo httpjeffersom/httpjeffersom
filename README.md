@@ -1,1 +1,1 @@
-windows e open source ❤️
+windows, android e open source ❤️
